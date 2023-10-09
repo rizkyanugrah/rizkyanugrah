@@ -1,4 +1,4 @@
-# Hi, I'm Rizki 👋
+# Hi, I'm Rizky Anugrah 👋
 
 <h1>Tentang Saya</h1>
 
